@@ -1,2 +1,2 @@
-![waffle preview](http://imgur.com/NuODm6k.png)
+![waffle preview](http://imgur.com/GHRtjIu.png)
 
