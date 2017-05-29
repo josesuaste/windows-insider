@@ -1,2 +1,2 @@
+![waffle preview](http://imgur.com/RjbIuYQ.png)
 
-![ninja-cat] (http://imgur.com/a/zzcPL.png)
