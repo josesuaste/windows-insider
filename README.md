@@ -1,2 +1,2 @@
 # windows-insider
-ninja-cat
+ninja-cat (http://imgur.com/NuODm6k.png)
